@@ -1,3 +1,1 @@
-Thermal universal 
-
-for all burn
+https://t.me/FunGamesTest
